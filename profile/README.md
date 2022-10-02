@@ -15,5 +15,4 @@ When it comes to apparel, in our humble opinion, there is no better place to sta
 - Uncomfortable looking shoes were worn by calm personalities.
 <br>
 The way people see you is how they will interact with you. Want to command a room, dress for power and watch the room follow your every word. Want to be heard, be bold in what you wear, the room already noticed you.
-<br>
-Checkout our store on [Etsy](https://www.etsy.com/uk/shop/StarkingSneakers)
+<br><br>
