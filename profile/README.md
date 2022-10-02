@@ -1,4 +1,4 @@
-![Starking Sneakers](https://github.com/starkingsneakers/design/blob/main/logo/logo-big-transparent.png?raw=true)
+![Starking Sneakers](https://github.com/starkingsneakers/.github/blob/main/logo-big-transparent.png?raw=true)
 
 Do you remember that feeling when you wore your favourite top or trouser? The jumper, that no many how many holes or tattered it was, every time you wore it, it gave you a feeling of comfort a sense of calm. Or your Power clothes, which when you wore, it made your sense of purpose even more distinct. You were on a mission that day, and no matter what, things were going to get done.
 <br>
